@@ -1,0 +1,5 @@
+- 👋 'm @igoralencarc
+- 👀 I'm interested in developing skills and abilities in programming, implementing knowledge to the administrative work procedures that I develop in the company I'm a collaborator.
+- 🌱 I'm currently learning and doing administrative services at the company I work for a short time.
+- 💞️ I try to collaborate in the implementation of new company ideas, qualify the work, provide more fluid resources, as well as solve problems.
+- 📫 I'm from Brazil. To contact me, the email address is igor-alencar@live.com.
